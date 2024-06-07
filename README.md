@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @NK44RU
 - 👀 My Instagram Account @Keyntaroo_
 - 🌱 My Tiktok Account @axeney_
-- 📲 My Phone Number : 088237487191 ( Provider Smartfren )
+- 📲 My Privider Phone : ( Provider Smartfren )
 - ✉️ My Email : shineekuch@gmail.com
 
   
